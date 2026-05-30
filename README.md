@@ -1,6 +1,6 @@
- ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎ ‎  ‎ I know you told your friends to text me
-
- ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎  Do you just expect me to get really scared?
+ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎ ‎  ‎ hi im wem or R lol!
+ 
+ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎  w2i but i might don't answer quickly
 <p align="center"Add 
 
 
